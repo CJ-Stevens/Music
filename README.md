@@ -20,3 +20,21 @@
 [สบายดีหรือเปล่า?](https://www.youtube.com/watch?v=CpyPFfWYm5o)<br>
 [เดินดง](https://www.youtube.com/watch?v=U1YvRG45eS4)<br>
 [ไม่เป็นไรเลย Nuvo นูโว](https://www.youtube.com/watch?v=EQfhd5RBrAY)<>
+
+### English 
+[You're The One That I Want](https://www.youtube.com/watch?v=7oKPYe53h78)<br>
+[Panama](https://www.youtube.com/watch?v=tMmMTdc7RE0)<br>
+[Beautiful Girls](https://www.youtube.com/watch?v=MrTz5xjmso4)<br>
+[Umbrella](https://www.youtube.com/watch?v=CvBfHwUxHIk)<br>
+[Why Not Me](https://www.youtube.com/watch?v=sGkQxFEi6AU)<br>
+[lyric kara-until you-shayne ward](https://www.youtube.com/watch?v=7-HM5jdSfqg)<br>
+[I Don't Want To Talk About It](https://www.youtube.com/watch?v=w46bWxS9IjY)<br>
+[Perfect](https://www.youtube.com/watch?v=2Vv-BfVoq4g&list=RDJGwWNGJdvx8&index=2)<br>
+[When a Man Loves a Woman](https://www.youtube.com/watch?v=MUuNDb-nm5M)<br>
+[Please Forgive Me](https://www.youtube.com/watch?v=9EHAo6rEuas)<br>
+[Hotel California](https://www.youtube.com/watch?v=EBwKMzoprvE)<br>
+[Guns N' Roses - Paradise City](https://www.youtube.com/watch?v=Rbm6GXllBiw&list=PLkjTTfaqDiFK86qfQMEXKlk4IUqbBCJhg&index=4)<br>
+[AC/DC - Back In Black](https://www.youtube.com/watch?v=pAgnJDJN4VA)<br>
+[Survivor - Eye Of The Tiger](https://www.youtube.com/watch?v=btPJPFnesV4)<br>
+[Joan Jett & The Blackhearts - I Hate Myself for Loving You](https://www.youtube.com/watch?v=bpNw7jYkbVc)<br>
+[RUN DMC - Walk This Way](https://www.youtube.com/watch?v=4B_UYYPb-Gk)<br>
